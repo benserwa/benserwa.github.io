@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Darby Allin Stunt Awakens A Sleeping Evil
+title: Darby Allin Stunt Awakens Dormant Evil
 ---
 ![](https://dreich.nfshost.com/darby-allin-aew-glass-960x540.webp)
 
