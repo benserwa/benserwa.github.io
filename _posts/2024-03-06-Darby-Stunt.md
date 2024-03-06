@@ -14,4 +14,4 @@ Former AEW competitor Charles Montgomery Punk opined on the results of the unint
 
 After we saw the many cuts on Darby Allin's bleeding back, the shards of glass that scattered around him after the impressive stunt seems to coalesce on their own, forming the shape of the evil creature. Fans at first thought the monster to be a part of the show, but once this ancient servant of Crygenylx, God of Glass began rampaging through the crowd, a panicked evacuation began. Thankfully, Hiroshi Tanahashi was in attendance, and was able to heroically dispatch the abomination, and stabilize the fallen fans. While many were injured and are still hospitalized after the incident, there are not expected to be any casualties.
 
-When contacted for to comment on the issue, Jack Perry said, "Summoning an ancient demon? Cry me a river."
+When asked for a comment on the issue, Jack Perry said, "Summoning an ancient demon? Cry me a river."
