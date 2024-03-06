@@ -2,6 +2,8 @@
 layout: post
 title: Darby Allin Stunt Awakens Evil Servant of Glass God
 ---
+![](https://dreich.nfshost.com/darby-allin-aew-glass-960x540.webp)
+
 Everyone who loves the sport of professional wrestling was on the edge of their seats to witness Sting's final match at the *AEW Revolution* pay-per-view event in Greensboro, Misconsin. However, when daredevil athlete Darby Allin jumped off of a 100 ft ladder and landed on his back in the middle of a plane of tempered glass that was being held up by six steel folding chairs, this profane act of self-disregard woke something foul that had been festering under the cement foundations of the Metroma Dome.
 
 Former AEW competitor Charles Montgomery Punk opined on the results of the unintended ritual.
